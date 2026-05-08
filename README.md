@@ -57,4 +57,4 @@ https://github.com/409exsh/yogesh-portfolio-projects
 ## 📫 Connect With Me
 
 LinkedIn:
-https://linkedin.com/in/yogeshyerraboina
+https://www.linkedin.com/in/yerraboina-yogesh-698665321/
